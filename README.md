@@ -6,7 +6,8 @@
 ---
 
 ## Random Log  
-**Link:** [Paste.gd](https://paste.gd/5YlFNDVz)
+**Link:** [Random log](https://0bin.net/paste/KdU81TrM#dk6WnjcB9HgFcBVISJ8AtcUcTk77TSvzqK9Xpc3iOVU)
+**Link 2** [Backup](https://paste.gd/wYB10QS3)
 
 ---
 
@@ -21,9 +22,20 @@
 ---
 
 ## SSN  
-**Link:** [Paste.gd](https://paste.gd/iiS6g0Ax)
+**Link:** [SSN](https://paste.gd/c7rTLURR)
+**Link 2** [SSN Backup](https://pastebin.com/1m2g64cz)
 
 ---
 
 ## Stock Courses  
 **Download Link:** [Mega.nz](https://mega.nz/folder/Nw0zSSKC#r_WK0mfh83DPoYd6_dM-cw)
+
+---
+
+## 300,000 Random Credit Cards
+
+**Link** [Mega](https://mega.nz/file/u1lGkJpK#W8uYm7UmhzO9gRrazNx0w0zjZWUD0bBh6pTQlkm5t0Q)
+
+## Telegram > https://t.me/NoFaceCarding
+ - [Telegram](https://t.me/NoFaceCarding)
+ - [Website](https://nfcarding.netlify.app/) (free stuff)
